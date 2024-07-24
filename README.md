@@ -9,5 +9,5 @@ Meu nome e Vitor
 
 @vitor_camargo__
 
+![](https://media1.tenor.com/m/mtXWjUVNwEwAAAAC/truck-le-dlogo-by-le-dletter-truckspecials-holland.gif)
 
-![](https://media1.tenor.com/m/tO6gBTXpt4EAAAAd/daf-truck.gif)
