@@ -4,7 +4,7 @@ Meu nome e Vitor
 
 -Tenho 16 anos 
 
--Sou estudante do 1 ano do ensino medio
+-Sou estudante do 2 ano do ensino medio
 
 ### voce entrar em contato comigo 📫
 
